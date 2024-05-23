@@ -3,5 +3,5 @@
 - 🌱 I’m currently finishing my PhD in Human Resources and Organisational Behaviour
 - 💞️ I’m looking to collaborate on modelling for clothing brands, marketing, ads, training, and mentoring. I am also looking to create my own organic food and cosmetics brand.
 - 📫 How to reach me via email n.s.a.hanafi@gmail.com
-- 😄 Pronouns: She/her
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a fear of touching prawns' shells!!
